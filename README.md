@@ -417,6 +417,7 @@ Eduardo Marchi
 ## Executado por 💻🧠:
 
 Eduardo Marchi, Aluno do projeto ONE - Alura e Oracle Next Education.
+https://www.linkedin.com/in/eduardo-marchi-42b371348/
 
 
 ## Agradecimentos🙏 
